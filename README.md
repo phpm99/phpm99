@@ -32,5 +32,5 @@ Análisis cuantitativo de regulaciones de telecomunicaciones a través de las di
 Tengo experiencia laboral en **comunicación institucional dentro del sector público**, además de haber trabajado en *gestión de datos en el sector privado*, lo que me da una visión integral de cómo se gestiona, comunica y opera la información tanto en el Estado como en el sector privado.
 
 ### 📫 Cómo contactarme
-- **LinkedIn:** [Tu Perfil](https://www.linkedin.com/in/phpm/)
+- **LinkedIn:** [Patricio Hernan Perez Mainero](https://www.linkedin.com/in/phpm/)
 - **Email:** patoperezm99@gmail.com
